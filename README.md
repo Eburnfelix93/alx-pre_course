@@ -1,1 +1,1 @@
-my firstreadme
+im enjoying my studies
